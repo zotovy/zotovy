@@ -1,6 +1,6 @@
 # [Yaroslav Zotov](https://drive.google.com/file/d/1nnwdDS64gFZcgFO8HoZ4y8Jf0ICUQ5To/view?usp=sharing)
 
-[+374 55 97-52-01](tel:+37455975201) · [y.zotov.dev@gmail.com](mailto:y.zotov.dev@gmail.com) · [LinkedIn](https://www.linkedin.com/in/yaroslav-zotov) · [GitHub](https://github.com/zotovy) · [Telegram](https://t.me/zotovy)
+[y.zotov.dev@gmail.com](mailto:y.zotov.dev@gmail.com) · [LinkedIn](https://www.linkedin.com/in/yaroslav-zotov) · [GitHub](https://github.com/zotovy) · [Telegram](https://t.me/zotovy)
 
 ## About
 
